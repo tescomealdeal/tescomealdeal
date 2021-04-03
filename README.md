@@ -3,7 +3,7 @@
 
 - 📫 my discord is tesco#3849
 
-- ⚡ working on enigma, azuline, skeetware.dub, asda.uk and other random small things
+- ⚡ working scunthorpe.zone/scunthorpe.club
 
 - 🏅 currently the world record holder of twobuilderstwo.tools https://youtu.be/pXbgZfarbzQ
 
