@@ -3,7 +3,7 @@
 
 - 📫 my discord is tesco#3849
 
-- ⚡ working scunthorpe.zone/scunthorpe.club
+- ⚡ peckin fb to make fbware
 
 - 🏅 currently the world record holder of twobuilderstwo.tools https://youtu.be/pXbgZfarbzQ
 
