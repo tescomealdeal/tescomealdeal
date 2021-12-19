@@ -3,8 +3,6 @@
 
 - 📫 my discord is tesco#3849
 
-- ⚡ peckin fb to make fbware
-
 - 🏅 currently the world record holder of twobuilderstwo.tools https://youtu.be/pXbgZfarbzQ
 
 <h3 align="left">contacts:</h3>
