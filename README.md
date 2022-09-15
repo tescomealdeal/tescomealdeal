@@ -3,7 +3,7 @@
 
 - 📫 my discord is tesco#3849
 
-- 🏅 currently the world record holder of twobuilderstwo.tools https://youtu.be/pXbgZfarbzQ
+- 🏅 currently the world record holder of twobuilderstwo.tools
 
 <h3 align="left">contacts:</h3>
 <p align="left">
